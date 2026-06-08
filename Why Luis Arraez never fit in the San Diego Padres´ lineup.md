@@ -1,4 +1,4 @@
-When the San Diego Padres sigend Luis Arraez as free agent to the San Francisco Giants this past offseason, the reaction was predictably split. One side saw a three-time batting champion being dumped at a discount. The other side pointed to his .292 average in 2025 and called it addition by subtraction. Both sides missed the point entirely.
+When the San Diego Padres signed Luis Arraez as free agent to the San Francisco Giants this past offseason, the reaction was predictably split. One side saw a three-time batting champion being dumped at a discount. The other side pointed to his .292 average in 2025 and called it addition by subtraction. Both sides missed the point entirely.
 
 This isn’t a story about whether Arraez is good or bad. He’s good — historically good at one very specific thing. This is a story about fit. About how a front office can acquire a genuinely elite player and still make a mistake, because the player’s skillset and the team’s environment were working against each other from day one. And it’s about how San Francisco identified all of that, waited, and bought low on a player whose underlying skills never actually went anywhere.
 
